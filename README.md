@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MEVJ951119MBCZNR03
+MEVJ951119MBCZNR03
